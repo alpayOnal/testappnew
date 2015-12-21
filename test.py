@@ -1,14 +1,7 @@
-asdasdasdasdasda\d
-\asdasdada s
-ad
-sa
-d
-sa
-dsa
+dasdasd asdasd
+as
+das
 d
 as
 d
-sa
-da
-d
-as
+asd
